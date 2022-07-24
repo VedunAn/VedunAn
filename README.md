@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VedunAn (Andrii)
-- 👀 I’m interested in ...
+- 👀 I’m interested in tourist hikes, traveling, reading, programming, psychology, English, humor, detective and science-fiction novels
 - 🌱 I’m currently learning Front-End
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Kyiv, Ukraine. E: vedunan@gmail.com, C: +380666758887 (Telegram, Viber, WhatsUp)
